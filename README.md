@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @derikthomas28
 - 👀 I’m interested in ... Hacking,Coding,Space research
-- 🌱 1st Year BTech Computer Science Student
+- 🌱 Final Year BTech Computer Science Student
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... derikthomas28@gmail.com
 
